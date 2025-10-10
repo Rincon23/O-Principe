@@ -27,6 +27,7 @@ Ele também fala sobre como o rei Luís XII perdeu seu reinado e os erros que co
 
 No fim, esse outro país acabou tomando o próprio reinado de Luís.
 
+
 ## Capítulo 4
 
 Existem dois tipos de principados, exemplificados pelos turcos e pelos franceses.
@@ -46,3 +47,14 @@ Por outro lado, após conquistar um Estado como o dos turcos, é muito mais fác
 A melhor forma de conservar seu reinado após uma tomado de um Estado que não tem suas leis e costumes é destruindo as civilizações que antes lá viviam, pois sempre lembrarão de como era antes e provavelmente se rebelarão como forma de vingança.
 
 Outra forma seria habitar neste local tomado, junto deste povo para aprender os costumes, reinar de modo mais eficaz e diagnosticar problemas mais cedo.
+
+
+## Capítulo 6 
+
+É muito melhor seguir por um caminho por onde alguém já trilhou e teve muito sucesso, mesmo que não seja o seu objetivo ser tão bem-sucedido, pois sempre temos que mirar mais alto do que os objetivos para que, caso falhemos, ainda possamos chegar com mais facilidade ao objetivo.
+
+Ele elucida isso com um arqueiro hábil, que para atingir o alvo deve mirar alto para alcançá-lo.
+
+Diz que os mencionados no livro que tiveram grandes destaques só são quem são tanto pela oportunidade quanto pela virtude. Podemos relacionar a oportunidade com a sorte e a virtude com o conhecimento.
+
+Diz também que, se para que sua obra dê certo é preciso que outras pessoas o ajudem e creiam, e você não pode fazer com que elas ajudem ou creiam forçadamente, não dará certo. Já obras que dependem somente de si, ou além de si, de pessoas às quais você pode forçá-las a ajudar, certamente darão certo.
