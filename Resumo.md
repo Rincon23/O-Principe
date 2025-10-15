@@ -58,3 +58,9 @@ Ele elucida isso com um arqueiro hábil, que para atingir o alvo deve mirar alto
 Diz que os mencionados no livro que tiveram grandes destaques só são quem são tanto pela oportunidade quanto pela virtude. Podemos relacionar a oportunidade com a sorte e a virtude com o conhecimento.
 
 Diz também que, se para que sua obra dê certo é preciso que outras pessoas o ajudem e creiam, e você não pode fazer com que elas ajudem ou creiam forçadamente, não dará certo. Já obras que dependem somente de si, ou além de si, de pessoas às quais você pode forçá-las a ajudar, certamente darão certo.
+
+## Capítulo 7
+
+Os que se tornram algo somente pela sorte, com pouca fadiga o conseguiram porém terão muita dificuldade pelo caminho pois não possuem virtude
+
+Tudo o que surge rapidamente como todas as coisas da natureza que nascem e crescem de pressa, não podem ter raízes e estruturação perfeita e a primeira adversidade os extingue.
